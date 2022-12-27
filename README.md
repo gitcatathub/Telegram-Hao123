@@ -12,4 +12,4 @@ CN/YouTuber/TG频道
 晓峰部落阁-World Chat Group - t.me/wxfdbq
 
 CN/网络技术  
-LoopDNS P
+LoopDNS Plan - t.me/loopdns
