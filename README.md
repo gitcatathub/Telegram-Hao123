@@ -14,7 +14,7 @@ CN/YouTuber/TG频道
 CN/网络技术  
 LoopDNS Plan - https://t.me/loopdns
 
-CN/影音数码
+CN/影音数码  
 肥羊影音数码综合分享 - https://t.me/feiyangofficalchannel
 
 EN/破解技术  
